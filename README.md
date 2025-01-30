@@ -1,5 +1,5 @@
 # reels-i-worked-on
-whatever links I add on here , are the reels I shot and edited 
+whatever links I add on here , are the reels I shot or edited or both. 
 
 https://www.instagram.com/reel/DFSTKeINtyS/?utm_source=ig_web_copy_link&igsh=MzRlODBiNWFlZA==
 https://www.instagram.com/reel/DBRL860I3W9/?utm_source=ig_web_copy_link&igsh=MzRlODBiNWFlZA==
